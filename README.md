@@ -1,0 +1,1 @@
+# KOPSOR.TR
